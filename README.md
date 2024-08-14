@@ -6,7 +6,7 @@
 ##
 
 Anyway, here's what I've been listening to in past days:
-- ["Operation cute Massacre (feat. Yandere Chainsaw Regurgitation Factory)"] by Loli Noise Torture(https://youtu.be/36QxXubvRZ4?si=OIKrQCMWijICS37-)
+- ["Operation cute Massacre (feat. Yandere Chainsaw Regurgitation Factory)" by Loli Noise Torture](https://youtu.be/36QxXubvRZ4?si=OIKrQCMWijICS37-)
 - ["Have You Ever Kissed a Girl Before?" by Sorry about my name](https://youtu.be/jBq1SnKoqF4?si=NQclAtJlRt4xOWcl)
 - ["Faded before blossom" by Item Caligo](https://youtu.be/AC-QuID476o?si=7SSxXsWBuW1mDN_P)
 - ["I'm tired of my life" by waqs](https://youtu.be/TrPQjeeAHQU?si=sxHyDOyObuWHV30D)
